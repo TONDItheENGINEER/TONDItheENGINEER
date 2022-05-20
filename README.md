@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @TONDItheENGINEER
 - 👀 I’m interested in robotics
-- 🌱 I’m currently learning Mechatronics and Robotics @ The University of Birmingham
+- 🌱 I’m currently learning Mechatronics and Robotics @ The University of Birmingham. 09/21 - 06/26
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me Email: tonderainn@outlook.com, Instagram: @tonderai_n
 - 📝 Your more likely to get a response on Instagram :)
